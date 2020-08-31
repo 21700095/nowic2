@@ -1,2 +1,2 @@
 # nowic2
-jun min's have no girlfirends
+jun min's have no girlfirends!
